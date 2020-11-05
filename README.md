@@ -9,6 +9,11 @@ Come on over in my direction
 So thankful for that, it's such a blessin', yeah
 Turn every situation into Heaven, yeah
 
+My sunrise on the darkest day
+Got me feelin' some kind of way
+Make me wanna savor every moment slowly, slowly
+You fit me, tailor-made love, how you put it on
+
 
 <!--
 **karcexy/karcexy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
