@@ -3,7 +3,7 @@
 ### Let's Start Something New. In github
 
 <a href="https://t.me/karcexy"><img src="https://img.shields.io/badge/TG-Telegram-pink.svg?logo=Telegram"></a>
-<a href="https://t.me/marshmellochat"><img src="https://img.shields.io/badge/Join-Telegram%20Group-blue.svg?logo=telegram"></a>
+<a href="https://t.me/marshmellochat"><img src="https://img.shields.io/badge/Join-Telegram%20Group-pink.svg?logo=telegram"></a>
 
 
 
