@@ -14,6 +14,10 @@ Got me feelin' some kind of way
 Make me wanna savor every moment slowly, slowly
 You fit me, tailor-made love, how you put it on
 
+Got the only key, know how to turn it on
+The way you nibble on my ear, the only words I wanna hear
+Baby take it slow so we can last long
+
 
 <!--
 **karcexy/karcexy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
