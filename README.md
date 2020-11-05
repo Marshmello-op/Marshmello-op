@@ -6,32 +6,32 @@
 <a href="https://t.me/marshmellochat"><img src="https://img.shields.io/badge/Join-Telegram%20Group-pink.svg?logo=telegram"></a>
 
 Come on over in my direction
-So thankful for that, it's such a blessin', yeah
+So thankful for that, it's such a blessin', yeah......
 Turn every situation into Heaven, yeah
 
 My sunrise on the darkest day
-Got me feelin' some kind of way
+Got me feelin' some kind of way......
 Make me wanna savor every moment slowly, slowly
-You fit me, tailor-made love, how you put it on
+You fit me, tailor-made love, how you put it on...
 
 Got the only key, know how to turn it on
 The way you nibble on my ear, the only words I wanna hear
-Baby take it slow so we can last long
+Baby take it slow so we can last long...
 
 ### ==================================
 
 Tu mile dil khile
-Aur jine ko kya chahiye
+Aur jine ko kya chahiye...
 Tu mile dil khile
-Aur jine ko kya chahiye
+Aur jine ko kya chahiye...
 
 
 Na ho tu udas tere pas pas
-Main rahunga zindagi bhar
+Main rahunga zindagi bhar..
 Na ho tu udas tere pas pas
-Main rahunga zindagi bhar
+Main rahunga zindagi bhar..
 Sare sansar ka pyar maine
-Tujhi me paya 
+Tujhi me paya.....
 
 
 
