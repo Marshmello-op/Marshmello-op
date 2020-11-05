@@ -34,10 +34,12 @@ Main rahunga zindagi bhar..
 Sare sansar ka pyar maine
 Tujhi me paya.....
 
-# about me
-i am karcexy(shubhansh manikpuri) Form India...\n
+# -About me
+i am karcexy(shubhansh manikpuri) Form India...
+
 biggest fan of Allu Arjun sir...
-and i am a singers
+
+and i am a singer
 
 
 <!--
