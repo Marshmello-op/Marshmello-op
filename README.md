@@ -41,7 +41,7 @@ biggest fan of Allu Arjun sir...
 
 and i am a singer
 
-![Enterprise](https://telegra.ph/file/3feaa0629756e0e45a2b7.jpg)
+![Enterprise](https://telegra.ph/file/122c82a7a81698a874b14.jpg)
 
 <!--
 **karcexy/karcexy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
