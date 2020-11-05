@@ -44,8 +44,8 @@ and i am a singer
 ![Enterprise](https://telegra.ph/file/122c82a7a81698a874b14.jpg)
 
 # ME ON SOCIAL MEDIA
-<a href="https://https://www.instagram.com/kracexy"><img src="https://img.shields.io/badge/follow-karcexy-pink.svg?logo=instagram"></a>
-<a href="https://https://shubhanshmanikpuri7@gmail.com"><img src="https://img.shields.io/badge/mail-karcexy-pink.svg?logo=email"></a>
+<a href="https://https://www.instagram.com/kracexy"><img src="https://img.shields.io/badge/follow-karcexy-red.svg?logo=instagram"></a>
+<a href="https://https://shubhanshmanikpuri7@gmail.com"><img src="https://img.shields.io/badge/mail-karcexy-red.svg?logo=email"></a>
 
 
 <!--
