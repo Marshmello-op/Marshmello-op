@@ -47,6 +47,7 @@ Tujhi me paya.....
 <a href="https://https://www.instagram.com/kracexy"><img src="https://img.shields.io/badge/follow-karcexy-red.svg?logo=instagram"></a>
 <a href="https://https://shubhanshmanikpuri7@gmail.com"><img src="https://img.shields.io/badge/mail-karcexy-red.svg?logo=gmail"></a>
 <a href="https://https://www.facebook.com"><img src="https://img.shields.io/badge/FB-karcexy-red.svg?logo=Facebook"></a>
+<a href="https://https://YouTube.com/karcexygaming"><img src="https://img.shields.io/badge/Youtube-karcexy Gaming-red.svg?logo=YouTube"></a>
 
 <!--
 **karcexy/karcexy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
