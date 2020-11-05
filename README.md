@@ -45,7 +45,7 @@ and i am a singer
 
 # ME ON SOCIAL MEDIA
 <a href="https://https://www.instagram.com/kracexy"><img src="https://img.shields.io/badge/follow-karcexy-red.svg?logo=instagram"></a>
-<a href="https://https://shubhanshmanikpuri7@gmail.com"><img src="https://img.shields.io/badge/mail-karcexy-red.svg?logo=email"></a>
+<a href="https://https://shubhanshmanikpuri7@gmail.com"><img src="https://img.shields.io/badge/mail-karcexy-red.svg?logo=gmail"></a>
 
 
 <!--
