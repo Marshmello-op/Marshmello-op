@@ -2,7 +2,7 @@
 ### i am Karcexy 
 ### Let's Start Something New. In github
 
-<a href="https://t.me/karcexy"><img src="https://img.shields.io/badge/telegram-red.svg?logo=Telegram"></a>
+<a href="https://t.me/karcexy"><img src="https://img.shields.io/badge/Telegram-blue.svg?logo=Telegram"></a>
 <a href="https://t.me/marshmellochat"><img src="https://img.shields.io/badge/Join-Telegram%20Group-blue.svg?logo=telegram"></a>
 
 
