@@ -20,6 +20,21 @@ Baby take it slow so we can last long
 
 ### ==================================
 
+Tu mile dil khile
+Aur jine ko kya chahiye
+Tu mile dil khile
+Aur jine ko kya chahiye
+
+
+Na ho tu udas tere pas pas
+Main rahunga zindagi bhar
+Na ho tu udas tere pas pas
+Main rahunga zindagi bhar
+Sare sansar ka pyar maine
+Tujhi me paya 
+
+
+
 <!--
 **karcexy/karcexy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
