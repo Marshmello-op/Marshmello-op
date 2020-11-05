@@ -2,7 +2,7 @@
 ### i am Karcexy 
 ### Let's Start Something New. In github
 
-<a href="https://t.me/t.me/karcexy">
+
 
 
 
