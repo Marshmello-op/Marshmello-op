@@ -34,7 +34,7 @@ Main rahunga zindagi bhar..
 Sare sansar ka pyar maine
 Tujhi me paya.....
 
-[enter](https://telegra.ph/file/193c197f149aa2358bbc3.mp4)
+https://telegra.ph/file/193c197f149aa2358bbc3.mp4
 
 
 <!--
